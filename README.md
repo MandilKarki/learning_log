@@ -1,5 +1,13 @@
 https://moodle.cestarcollege.com/moodle/mod/wiki/files.php?pageid=272
 
+peter sigurdson: February 21 Midterm Test Details
+by Peter Sigurdson - Tuesday, 31 January 2023, 10:00 AM
+Number of replies: 0
+- Delivered in Class Marker format
+- 75 Minutes: 15 questions
+tf/mcq; match up; discussion answer
+At 10:30 I will post the test url in the chatbox: 
+
 
 # learning_log
  A learning log in my journey.
